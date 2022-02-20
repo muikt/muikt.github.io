@@ -1,1 +1,1 @@
-# muiktoboro.github.io
+# muikt.github.io
